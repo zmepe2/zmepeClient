@@ -1,1 +1,1 @@
-Official zmepeClient Discord: https://discord.gg/qF9mUMe7yN test
+Official zmepeClient Discord: https://discord.gg/qF9mUMe7yN
